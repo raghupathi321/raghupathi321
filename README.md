@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **cybersecurity**
 
-- 📫 How to reach me **raghupathi1919@gmail.com**
+- 📫 How to reach me **timelessdebugger@duck.com**
 
 - 🌐 Explore my **[Place on the Internet](https://timelessdebugger.netlify.app/)**
 
